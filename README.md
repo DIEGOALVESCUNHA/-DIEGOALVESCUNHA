@@ -12,4 +12,4 @@ diegoalvescunha22@gmail.com
 
 @diegoalvescunha
 
-![](https://tenor.com/pt-BR/view/24-gif-22469229)
+![](https://media1.tenor.com/m/NOf4ikyu_f4AAAAd/nftascii-nft-ascii-rocket-moon-shill-blast-off-crypto-token.gif)
